@@ -3,7 +3,7 @@
 
 可以直接部署网页或者app商业运营，数据准确，尤其对钱财和运势的占卜；
 
-全套代码资源一起出售哦..联系Telegram：@xuzongbin001或E-mail：taibaibaba1314@gmail.com
+全套代码资源一起出售哦..联系Telegram：@xuzongbin001或E-mail：masterai918@gmail.com
 ![屏幕截图 2024-10-29 112845](https://github.com/user-attachments/assets/aac0fd9d-5677-4085-b4f8-4ab007a81416)
 ![屏幕截图 2024-10-29 114423](https://github.com/user-attachments/assets/93d0ffd3-4b22-4ebc-8d9f-2d0a91816e31)
 ![屏幕截图 2024-10-29 114624](https://github.com/user-attachments/assets/be593f24-d2d6-4498-b102-733f71f76922)
