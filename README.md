@@ -1,9 +1,9 @@
 #  阴阳五行，干支 --七政四余--四柱八字-紫微斗数--奇门遁甲--大六壬--刑冲关系--神煞等周易占卜玄学
 周易八卦，阴阳五行，干支，四柱八字排盘，紫微斗数，奇门遁甲，七政四余集大成者结合，经过数十年周易研究，结合了紫薇运势，刑冲关系，神煞，奇门遁甲，七政四余排盘，大六壬等多种中国古老周易占卜算法，结合计算机知识，在网页可以时时展示出来，对真正的占卜师，周易爱好者非常有益。
 
-可以直接部署网页或者app商业运营，数据准确，尤其对钱财和运势的占卜；
+可以直接部署网页或者app商业运营，数据准确，尤其对运势的占卜；
 
-全套代码资源一起出售哦..联系Telegram：@xuzongbin001或E-mail：masterai918@gmail.com
+全套代码资源一起.联系Telegram：@xuzongbin001或E-mail：masterai918@gmail.com
 
 <img width="550" alt="微信图片_20250315113404" src="https://github.com/user-attachments/assets/61accf0b-d0e4-4b99-97d8-a5cf903cabdb" />
 <img width="580" alt="1" src="https://github.com/user-attachments/assets/48025356-b9bd-42b8-b002-fd3e6fb9144c" />
